@@ -1,0 +1,1 @@
+# Why-get-Salesforce-Marketing-Cloud-Administrator-certified-2023
